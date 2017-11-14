@@ -3,9 +3,9 @@
 
 Ceci est mon répertoire personnel
 
-Marc Furlan le pd
+Marc Furlan 
 
-Julien est pas gentil
+voilà
 
 
 modificatiiiiiiiiiion
