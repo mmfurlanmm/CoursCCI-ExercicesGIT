@@ -9,6 +9,6 @@ voilà
 
 
 
-Julien est mon meilleur ami même s'il est gros et moche
+Julien est mon meilleur ami et il est très gentil
 
 modificatiiiiiiiiiion
